@@ -1,7 +1,7 @@
 <p align="center">
 <img alt="1" src="https://file.garden/afMNaszj4BOnPmsW/rentry/other/2.webp"/> <br>
-𝒾an&nbsp;&nbsp;&nbsp;&nbsp;ₒᵣ&nbsp;&nbsp;&nbsp;&nbsp;𝓀atherine <br>
-<img width=15px alt="1" src="https://i.postimg.cc/5twSsys1/IMG_1952.gif"/>&nbsp;&nbsp;&nbsp;&nbsp;agender&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;pupgirlic&nbsp;&nbsp;&nbsp;&nbsp;<img width=15px alt="1" src="https://i.postimg.cc/zXtthycc/IMG_1966.webp"/><br>
+𝓀odo&nbsp;&nbsp;&nbsp;&nbsp;ₒᵣ&nbsp;&nbsp;&nbsp;&nbsp;𝒶ngel <br>
+<img width=15px alt="1" src="https://i.postimg.cc/5twSsys1/IMG_1952.gif"/>&nbsp;&nbsp;&nbsp;&nbsp;genderless&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;plural&nbsp;&nbsp;&nbsp;&nbsp;<img width=15px alt="1" src="https://i.postimg.cc/zXtthycc/IMG_1966.webp"/><br>
 <a href="https://pronouns.cc/@pups">𝓅rn</a>s.cc&nbsp;&nbsp;&nbsp;&nbsp;<img width=15px alt="1" src="https://i.postimg.cc/s2Kyh8GS/Qx8zkvv.png"/><img width=15px alt="1" src="https://i.postimg.cc/rz6LT276/3BExzD9.png"/>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://pupz.atabook.org/">𝒶ta</a>.book <br><br>
 <img alt="1" src="https://i.postimg.cc/2yH9pyRc/IMG_0764.gif"/> <br><br>
   «&nbsp;&nbsp;&nbsp;永遠にあなただけを愛し続ける&nbsp;&nbsp;»<br><br>
