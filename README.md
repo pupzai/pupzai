@@ -21,7 +21,7 @@
     <td style="border: none; padding-right: 20px; vertical-align: middle; text-align: left;">
       ILL ADD MORE <br>
       LATER OK IM LAzy <br>
-      <img width=130px alt="1" src="https://i.postimg.cc/MpB55dTr/IMG_0750.gif"/>
+      <img width=125px alt="1" src="https://i.postimg.cc/MpB55dTr/IMG_0750.gif"/>
     </td>
     <td style="border: none; vertical-align: middle;">
       <img src="https://file.garden/afMNaszj4BOnPmsW/some%20bs/7.png" width="160" height="160" alt="2" style="border-radius: 0px !important;">
