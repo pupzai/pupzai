@@ -1,9 +1,32 @@
+<table align="center" style="border: none; border-collapse: collapse;">
+  <tr style="border: none;">
+    <td style="border: none; padding-right: 20px; vertical-align: middle;">
+      <img src="https://file.garden/afMNaszj4BOnPmsW/some%20bs/6.png" width="160" height="160" alt="First Image" style="border-radius: 0px !important;">
+    </td>
+    <td style="border: none; vertical-align: middle; text-align: left;">
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;♱&nbsp;&nbsp;────────<br>
+      &nbsp;𝓀odo&nbsp;&nbsp;&nbsp;&nbsp;ₒᵣ&nbsp;&nbsp;&nbsp;&nbsp;𝒶ngel <br>
+      &nbsp;<img width=15px alt="1" src="https://i.postimg.cc/3wjFjyqQ/IMG-1430.gif"/>&nbsp;&nbsp;&nbsp;&nbsp;genderless&nbsp;&nbsp;&nbsp; <br>
+      &nbsp;&nbsp;&nbsp;plural&nbsp;&nbsp;&nbsp;&nbsp;sys&nbsp;&nbsp;&nbsp;&nbsp;<img width=15px alt="1" src="https://i.postimg.cc/V6D9Tx17/IMG-1433.gif"/><br>
+      &nbsp; <br>
+      &nbsp;<img width=15px alt="1" src="https://i.postimg.cc/s2Kyh8GS/Qx8zkvv.png"/>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://pupz.atabook.org/">𝒶ta</a>.book&nbsp;&nbsp;&nbsp;&nbsp;<img width=15px alt="1" src="https://i.postimg.cc/rz6LT276/3BExzD9.png"/><br>
+    </td>
+  </tr>
+  </table>
+  <table align="center" style="border: none; border-collapse: collapse;">
+  <tr style="border: none;">
+    <td style="border: none; padding-right: 20px; vertical-align: middle; text-align: left;">
+      ILL ADD MORE <br>
+      LATER OK IM LAzy
+    </td>
+    <td style="border: none; vertical-align: middle;">
+      <img src="https://file.garden/afMNaszj4BOnPmsW/some%20bs/7.png" width="160" height="160" alt="Second Image" style="border-radius: 0px !important;">
+    </td>
+  </tr>
+</table>
 <p align="center">
-<img alt="1" src="https://file.garden/afMNaszj4BOnPmsW/rentry/other/2.webp"/> <br>
-𝓀odo&nbsp;&nbsp;&nbsp;&nbsp;ₒᵣ&nbsp;&nbsp;&nbsp;&nbsp;𝒶ngel <br>
-<img width=15px alt="1" src="https://i.postimg.cc/5twSsys1/IMG_1952.gif"/>&nbsp;&nbsp;&nbsp;&nbsp;genderless&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;plural&nbsp;&nbsp;&nbsp;&nbsp;<img width=15px alt="1" src="https://i.postimg.cc/zXtthycc/IMG_1966.webp"/><br>
-<a href="https://pronouns.cc/@pups">𝓅rn</a>s.cc&nbsp;&nbsp;&nbsp;&nbsp;<img width=15px alt="1" src="https://i.postimg.cc/s2Kyh8GS/Qx8zkvv.png"/><img width=15px alt="1" src="https://i.postimg.cc/rz6LT276/3BExzD9.png"/>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://pupz.atabook.org/">𝒶ta</a>.book <br><br>
 <img alt="1" src="https://i.postimg.cc/2yH9pyRc/IMG_0764.gif"/> <br><br>
   «&nbsp;&nbsp;&nbsp;永遠にあなただけを愛し続ける&nbsp;&nbsp;»<br><br>
-  <img alt="1" src="https://komarev.com/ghpvc/?username=shiguda&style=for-the-badge&color=grey&label=treats&abbreviated=true&base=5480"/> <br>
+  <img alt="1" src="https://komarev.com/ghpvc/?username=shiguda&style=for-the-badge&color=000000&label=victims&abbreviated=true&base=5480"/> <br>
 </p>
+
