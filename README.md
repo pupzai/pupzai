@@ -19,8 +19,8 @@
   <table align="center" style="border: none; border-collapse: collapse;">
   <tr style="border: none;">
     <td style="border: none; padding-right: 20px; vertical-align: middle; text-align: left;">
-      <img width=100px alt="1" src="https://file.garden/afMNaszj4BOnPmsW/some%20bs/12.pnj"/> <br>
-      &nbsp;&nbsp;&nbsp;<a href="https://en.pronouns.page/@hispup">pr</a>ns&nbsp;&nbsp;&nbsp;dni&nbsp;&nbsp;&nbsp;byi&nbsp;&nbsp; <br>
+      <img width=90px alt="1" src="https://file.garden/afMNaszj4BOnPmsW/some%20bs/12.pnj"/> <br>
+      &nbsp;&nbsp;&nbsp;<a href="https://en.pronouns.page/@hispup">pr</a>ns&nbsp;&nbsp;&nbsp;&nbsp;dni&nbsp;&nbsp;&nbsp;byi&nbsp;&nbsp; <br>
       &nbsp;&nbsp;<img width=120px alt="1" src="https://i.postimg.cc/MpB55dTr/IMG_0750.gif"/>
     </td>
     <td style="border: none; vertical-align: middle;">
