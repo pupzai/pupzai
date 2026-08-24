@@ -7,7 +7,7 @@
       <img src="https://file.garden/afMNaszj4BOnPmsW/some%20bs/6.png" width="160" height="160" alt="1" style="border-radius: 0px !important;">
     </td>
     <td style="border: none; vertical-align: middle; text-align: left;">
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;♱&nbsp;&nbsp;────────<br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;♱&nbsp;&nbsp;───────<br>
       &nbsp;𝓀odo&nbsp;&nbsp;&nbsp;&nbsp;ₒᵣ&nbsp;&nbsp;&nbsp;&nbsp;𝒶ngel <br>
       &nbsp;<img width=15px alt="1" src="https://i.postimg.cc/3wjFjyqQ/IMG-1430.gif"/>&nbsp;&nbsp;&nbsp;&nbsp;genderless&nbsp;&nbsp;&nbsp; <br>
       &nbsp;&nbsp;&nbsp;plural&nbsp;&nbsp;&nbsp;&nbsp;sys&nbsp;&nbsp;&nbsp;&nbsp;<img width=15px alt="1" src="https://i.postimg.cc/V6D9Tx17/IMG-1433.gif"/><br>
@@ -19,8 +19,8 @@
   <table align="center" style="border: none; border-collapse: collapse;">
   <tr style="border: none;">
     <td style="border: none; padding-right: 20px; vertical-align: middle; text-align: left;">
-      ILL ADD MORE <br>
-      LATER OK IM LAzy <br>
+      <img width=100px alt="1" src="https://file.garden/afMNaszj4BOnPmsW/some%20bs/12.pnj"/> <br>
+      &nbsp;&nbsp;&nbsp;int&nbsp;&nbsp;&nbsp;&nbsp;dni&nbsp;&nbsp;&nbsp;&nbsp;byi&nbsp; <br>
       <img width=120px alt="1" src="https://i.postimg.cc/MpB55dTr/IMG_0750.gif"/>
     </td>
     <td style="border: none; vertical-align: middle;">
